@@ -1,0 +1,1 @@
+# turunan_persial_apk
